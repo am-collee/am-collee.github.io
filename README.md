@@ -1,4 +1,5 @@
-## Welcome to GitHub Pages
+## Welcome to Amber's GitHub Pages
+Owned by Amber Colleen T. Oloya
 
 You can use the [editor on GitHub](https://github.com/am-collee/am-collee.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
