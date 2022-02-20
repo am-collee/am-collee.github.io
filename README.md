@@ -10,9 +10,14 @@ I come here whenever I want to study. I play the lofi in the background while I 
 
 ```markdown
 This space is still under construction
+Stay Tuned
 
 ```
 
 ### Follow me
 
 - [Facebook](https://www.facebook.com/ambercolleen.oloya "Click Ctrl if you want to open this link on another tab.")
+
+**Link to my Computer Teacher's Github**
+
+- [Sir Gain](http://641n.github.io/ "Sir Gain's GitHub page.")
