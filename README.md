@@ -13,8 +13,11 @@ This space is still under construction
 Stay Tuned
 
 ```
+### mina, ganbatte ne!
+
 <div class="tenor-gif-embed" data-postid="23351114" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/barbara-kokomi-gif-23351114">Barbara Kokomi GIF</a>from <a href="https://tenor.com/search/barbara+kokomi-gifs">Barbara Kokomi GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-                                                                 *mina, ganbatte ne!*
+                                                                 
+
 
 ### Follow me
 
