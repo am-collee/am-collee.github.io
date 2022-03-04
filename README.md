@@ -8,11 +8,8 @@ Owned by Amber Colleen T. Oloya 🐱
 
 I come here whenever I want to study. I play the lofi in the background while I work. You are welcome to come and park here too. Cheers!
 
-```markdown
-This space is still under construction
-Stay Tuned
+- [basic JP lessons](https://www3.nhk.or.jp/nhkworld/en/tv/japaneasy/season1/index.html)
 
-```
 ### Mina, ganbatte ne!
 
 <div class="tenor-gif-embed" data-postid="23351114" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/barbara-kokomi-gif-23351114">Barbara Kokomi GIF</a>from <a href="https://tenor.com/search/barbara+kokomi-gifs">Barbara Kokomi GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
