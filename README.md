@@ -20,7 +20,7 @@ I come here whenever I want to study. I play the lofi in the background while I 
 ### Follow me
 
 - [Facebook](https://www.facebook.com/ambercolleen.oloya "Click Ctrl if you want to open this link on another tab.")
-- [Instagram](https://www.instagram.com/am_collee/ "Click Ctrl if you want to open this link on another tab.") 
+- [Instagram 📷](https://www.instagram.com/am_collee/ "Click Ctrl if you want to open this link on another tab.") 
 
 **Link to my Computer Teacher's Github**
 
