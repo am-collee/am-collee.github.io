@@ -9,7 +9,8 @@ Owned by Amber Colleen T. Oloya 🐱
 I come here whenever I want to study. I play the lofi in the background while I work. You are welcome to come and park here too. Cheers!
 
 - [Basic JP Lessons](https://www3.nhk.or.jp/nhkworld/en/tv/japaneasy/season1/index.html)
-- [🍮](https://www.facebook.com/100028970869165/videos/1144118633059650/) [🥄](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+- [My notes on JP (unfinished)](https://docs.google.com/document/d/1sgJso2a1hJ5uh5U97R_tQk4Z1rOsRabkdmBwDNzUJnc/edit?usp=sharing)
+- [🍮🥄](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 ### Mina, ganbatte ne! 🌟
 
